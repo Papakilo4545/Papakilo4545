@@ -2,7 +2,7 @@
 - 👀 I’m interested in Software and Database development
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on Software and Database development projects
-- 📫 How to reach me - you can reach me via email
+- 📫 How to reach me - email me at panther.kuol@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Love bike riding
 
